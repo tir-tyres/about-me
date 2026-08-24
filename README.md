@@ -2,7 +2,7 @@
    Hi hello i am Tir!1
 ```
 >[!NOTE]
->Im making this entire thing with the use of collapsed sections so getting lost wouldn't be that easy
+>Im making this entire thing with the use of collapsed sections so getting lost wouldn't be that easy(also its still a wip)
 <details>
 
 <summary>A few things before anything else</summary>
