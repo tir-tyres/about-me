@@ -22,6 +22,15 @@
 
 </details>
 
+<details>
+<summary> fandoms </summary>
+ i wouldn't call myself a person who knows much bout them but eh 
+   
+- sonic, mlp, pokemon
+- transformers, fnaf
+i so hope no one reads it yet cuz im done for today uhh note to myself higlight the ones i know better later yes
+</details>
+
 according pony town
 ---
 
