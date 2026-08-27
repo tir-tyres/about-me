@@ -28,7 +28,7 @@ About me
 <summary> 𝗗𝗡𝗜 𝗶𝗳 </summary>
 
 -  problematic, or supporting any problematic ships
-- making too many inappropriate jokes, or if inappropriate behavoir
+- making too many inappropriate jokes, or if inappropriate behavior
 - purpose of interaction is involving me in any drama or roleplay
 
 </details>  
