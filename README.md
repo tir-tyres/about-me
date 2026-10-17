@@ -80,9 +80,7 @@ According pony town
  - as stated before i often **multitask**, *though summoning me through whispers have like 90% sucess rate*<img width="20" height="20" alt="bubbles emot" src="https://github.com/user-attachments/assets/f95068a3-98c0-442b-8792-76edfd0c30da" />
 </details>
 
-
-
-
+<img width="179" height="14" alt="lov u all emot" src="https://github.com/user-attachments/assets/206d33e9-e3a6-4201-beac-d5c6a1596d96" />
 
 
 main pony jumpscare-->
