@@ -85,3 +85,8 @@ According pony town
 
 main pony jumpscare-->
 <img width="120" height="70" alt="ew" src="https://github.com/user-attachments/assets/d4d66cf7-bff6-4d44-b2ce-ca0e88ddd2a4" />
+
+<details>
+  <summary>click here trust</summary>
+  <p> the legged one <img width="450" height="400" alt="legged" src="https://github.com/user-attachments/assets/6f1dfff1-485a-474a-a97c-d597bd9dbede" />  </p>
+</details>
